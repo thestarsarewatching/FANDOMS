@@ -3,11 +3,11 @@ im in a lot of fandoms oops
 
 also im a chud
 
-🌟 = main fandom/interest
+🌟 = main
 
 if you're also in these fandoms pls interact im mega lonely brah
 
-murder drones 🌟, vocaloid 🌟, dandys world 🌟, forsaken 🌟, danganronpa 🌟, tadc 🌟, final destination 🌟, sally face, project sekai, kakegurui, my little pony, cookie run kingdom, fnaf, dream game, maximum ride, junji ito, project hail mary, minecraft (not args!!!), the mimic, demon slayer, gorillaz, regretevator, pokemon
+murder drones 🌟, vocaloid 🌟, dandys world 🌟, forsaken 🌟, danganronpa 🌟, tadc 🌟, maximum ride 🌟, final destination 🌟, die of death 🌟, sally face, project sekai, kakegurui, my little pony, cookie run kingdom, fnaf, dream game, junji ito, project hail mary, minecraft (not args!!!), the mimic, demon slayer, gorillaz, regretevator, pokemon
 
 there's probably more but I can't think of them rn
 
