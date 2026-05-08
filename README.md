@@ -7,10 +7,12 @@ also im a chud
 
 if you're also in these fandoms pls interact im mega lonely brah
 
-murder drones 🌟, vocaloid 🌟, dandys world 🌟, forsaken 🌟, danganronpa 🌟, tadc 🌟, final destination 🌟, sally face, project sekai, kakegurui, my little pony, cookie run kingdom, fnaf, dream game, maximum ride, junji ito, project hail mary, minecraft (not args!!!), the mimic, demon slayer, gorillaz, regretevator
+murder drones 🌟, vocaloid 🌟, dandys world 🌟, forsaken 🌟, danganronpa 🌟, tadc 🌟, final destination 🌟, sally face, project sekai, kakegurui, my little pony, cookie run kingdom, fnaf, dream game, maximum ride, junji ito, project hail mary, minecraft (not args!!!), the mimic, demon slayer, gorillaz, regretevator, pokemon
 
 there's probably more but I can't think of them rn
 
 i also have a bunch of special interests... pls int if theyre ur special interests too!!!! i need more ppl to talk to about them!!!!
 
 Astronomy 🌟, Biology 🌟, Physics 🌟, Psychology, Anthropology (heh kiyo mentioned), Zooology, Chemistry, Literature, Art
+
+<img width="736" height="236" alt="c75965372fdfd98a93240a1ec885ea87" src="https://github.com/user-attachments/assets/e52941b4-b6b6-4970-a9dc-011e0afbd67c" />
